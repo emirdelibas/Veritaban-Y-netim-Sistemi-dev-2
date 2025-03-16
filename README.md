@@ -1,0 +1,1 @@
+# Veritaban-Y-netim-Sistemi-dev-2
